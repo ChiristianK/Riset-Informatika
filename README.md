@@ -13,6 +13,9 @@ Penelitian murni adalah penelitian yang bertujuan untuk meningkatkan pengetahuan
 
 Penelitian terapan adalah penelitian yang bertujuan untuk meningkatkan pengetahuan ilmiah dengan tujuan praktis yang berarti hasilnya dapat segera dipakai untuk keperluan praktis
 
+Link Video Presentasi : 
+https://drive.google.com/drive/folders/1YlFQGUj8ar75-EiJTDVlLfsWVXrZU8gz?usp=sharing
+
 
 ## Daftar Jurnal
 | No | Judul | Jenis Penelitian (Menurut Sifat Permasalahan) |
